@@ -1,4 +1,4 @@
-𝜗 　  　  　  　 　  　 [main](https://github.com/retrobive) , [alt](https://github.com/touden-sibIings) , [twitter](https://twitter.com/retrobive)
+𝜗 　  　  　  　 　  　 [main](https://github.com/retrobive) , [alt](https://github.com/the-dreamsphere) , [twitter](https://twitter.com/retrobive)
 
 ᛝ  　  　     Please check my main 4 info  　  　     　 　  　    　  　   about me!!
 
